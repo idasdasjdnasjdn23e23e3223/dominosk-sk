@@ -1,0 +1,1 @@
+# dominosk-sk
